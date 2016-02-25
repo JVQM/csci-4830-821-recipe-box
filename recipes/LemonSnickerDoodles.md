@@ -28,9 +28,9 @@
 8.  Prepare a cookie sheet and grease it using a small amount of shortening.
 9.  Roll the dough into 1-inch balls and cover it in the cinnamon/sugar mixture.
     Place each ball on the cookie sheet at least 2 inches apart.
-10.	 Place the cookie sheet and cookies into the oven. Bake for 8-10 minutes or 
+10.  Place the cookie sheet and cookies into the oven. Bake for 8-10 minutes or 
     until cookies are golden on edges.
-11.	 Remove it from the oven and allow it to cool. Add powdered sugar to taste.
+11.  Remove it from the oven and allow it to cool. Add powdered sugar to taste.
 
 ## License
 
